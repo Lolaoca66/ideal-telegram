@@ -1,0 +1,1 @@
+# ideal-telegram - Lonely girl, mental age 18, fearless but diagnosed in Los Angeles as homicidical and suicidical, found roaming with her brain constantly along the highways breathing the free air of LA. Valentina from Italy. WOW
